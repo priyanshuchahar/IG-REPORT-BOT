@@ -1,7 +1,7 @@
 🔥 Auto Report Instagram 2022 🔥 
        <br>
        
-╭━━╴♻️ Update 01.08
+╭━━╴♻️ Update 01.08.22
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
