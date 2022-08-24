@@ -1,7 +1,7 @@
 🔥 Auto Report Instagram 2022 🔥 
        <br>
        
-╭━━╴♻️ Update 01.08.22
+╭━━╴♻️ Update 24.08.22
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
@@ -16,4 +16,4 @@
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-https://www.youtube.com/watch?v=UAW-pJyO48o
+https://www.youtube.com/watch?v=8RZ3C1WzKxM
