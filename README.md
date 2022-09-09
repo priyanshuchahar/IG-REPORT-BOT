@@ -1,13 +1,13 @@
-🔥 Auto Report Instagram 2022 🔥 
+🔥 Instagram Auto Report (By FunCker) 🔥 
        <br>
        
-╭━━╴♻️ Update 01.09.22
+╭━━╴♻️ Upgrade 09.09
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
-├  Over 370 k users active. 
+├  Over 470 k users active. 
 <br>
-├  Bot can report a account with max 1.8 M Followers.
+├  Bot can report a account with max 2.4 M Followers.
 <br>
 ├  It is very easy to use just by following the steps in the video on my channel.
 <br>
