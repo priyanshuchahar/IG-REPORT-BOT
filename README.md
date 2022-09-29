@@ -13,7 +13,7 @@
 <br>
 
  
- Telegram: 👉  https://t.me/Fun_cker
+ Telegram: 👉  https://t.me/Fun_ckerr
  
  Video:    https://www.youtube.com/watch?v=5LaWezZD6fs
  <br>
