@@ -9,7 +9,7 @@
 <br>
 ├  Bot can report a account with max 2.4 M Followers.
 <br>
-├  It is very easy to use just by following the steps in the video on my channel.
+├  It is very easy to use just by following the steps in the video on my channel.s
 <br>
 
  
