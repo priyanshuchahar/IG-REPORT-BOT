@@ -7,7 +7,7 @@
 <br>
 ├  Over 470 k users active. 
 <br>
-├  Bot can report a account with max 2.4 M Followers.
+├  Bot can report a account with max 2.4 M Followers.h
 <br>
 ├  It is very easy to use just by following the steps in the video on my channel.
 <br>
