@@ -1,7 +1,7 @@
 🔥 Instagram Auto Report (By FunCker) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 01.10.22
+╭━━╴♻️ Upgrade 07.10.22
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
