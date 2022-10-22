@@ -1,7 +1,7 @@
 🔥 Instagram Auto Report (By Immortal) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 07.10.22
+╭━━╴♻️ Upgrade 19.10.2022
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
